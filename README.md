@@ -1,1 +1,0 @@
-# stel-ar-assets
